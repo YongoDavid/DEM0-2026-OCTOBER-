@@ -8,3 +8,6 @@ New week, new day, lets goooo!.
 
 OCT 06
 New day, more grind
+
+OCT 08
+New day, more grind
