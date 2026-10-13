@@ -14,3 +14,6 @@ New day, more grind
 
 OCT 12
 New day, more grind
+
+OCT 13
+New day, more grind
