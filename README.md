@@ -26,3 +26,6 @@ New day, more grind
 
 OCT 19
 NEW WEEK, NEW DAY, SAME GRIND.
+
+OCT 20
+NEW DAY, SAME GRIND.
